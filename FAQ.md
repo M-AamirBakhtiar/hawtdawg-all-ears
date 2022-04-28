@@ -9,3 +9,7 @@ Showcase your best self—whether that means a fresh-from-the-groomer glamour sh
 ## Where do i list my favorite treats?
 
 Open the Hawt Dawg app and click on "Edit Profile."
+
+## Photo's are nice and all, but i dont see very well. How can i smell the other dogs?
+
+We regret that we are unable to offer our customers smell-o-vision at this time.
